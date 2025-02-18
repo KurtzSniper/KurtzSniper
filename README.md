@@ -1,6 +1,6 @@
-![Prototype](https://github.com/user-attachments/assets/51f128d8-3cab-4400-8fb4-cd71c837e09f)
+![Solarequiem](https://github.com/user-attachments/assets/6983a8ea-140e-481c-9100-768f65b6f4af)
 
-## Hello Chat
+## Greetings, my friends
 
 -👔 CEO of Hauptmann Style
 -🤖 Founder of the PrototypeTH
