@@ -2,8 +2,8 @@
 
 ## Greetings, my friends
 
--👔 CEO of Hauptmann Style
--🤖 Founder of the PrototypeTH
+- 👔 CEO of Hauptmann Style
+- 🤖 Founder of the PrototypeTH
 
 
 
